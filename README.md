@@ -1,4 +1,4 @@
-<p align="center"><img src=https://i.imgur.com/j9fZ039.png></p>
-<p align="center">clay　　★　　he/him　　19<br>
-bobby fulbright's #1 fan
-<p align="center"><img src=https://files.catbox.moe/cr1uak.gif></p>
+<p align="center"><img src="https://i.imgur.com/hJDxZoo.png"></p>
+<p align="center">frei　　★　　he/him　　19<br>
+farewell my turnabout freak
+<p align="center"><img src="https://i.postimg.cc/zXMqXX5g/silly-goose.gif"></p>
